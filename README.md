@@ -7,3 +7,4 @@
 Merimonga123
 
 test test
+ndryshime nga deivi njekohesisht me jurin
