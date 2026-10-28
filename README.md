@@ -5,3 +5,5 @@
 - Contributor Juri
 
 Merimonga123
+
+ndryshime nga deivi njekohesisht me jurin
